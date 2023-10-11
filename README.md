@@ -3,4 +3,5 @@
 Full name(Th) :  ไอรดา ธานี  
 Nickname : ไอซ์  
 Guest :Maykin  
+
 quality attributes  
